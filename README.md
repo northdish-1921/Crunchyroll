@@ -215,4 +215,4 @@ Crunchyroll is available as a **full free version** for Windows, with all featur
 Experience the ultimate anime streaming with Crunchyroll. **Download now and dive into the world of anime!**
 
 ---
-**Last updated:** 2026-09-20 23:53:41 UTC
+**Last updated:** 2026-09-21 02:05:04 UTC
